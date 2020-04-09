@@ -1,3 +1,3 @@
-Nama : 
+Nama : Nurul Utami Rusli
 
-NIM  :
+NIM  : D121181004
